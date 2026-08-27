@@ -1,9 +1,8 @@
 <div align=center>
 
-ㅤㅤㅤㅤ *eyeㅤofㅤtheㅤtiger* ㅤ
+<sub>*spam flw acc*</sub>
 
 
 
-![bean](deanwinchester.png)
 
-[m a i n](https://github.com/trixxitreatz)
+<sub>[main](https://github.com/vampyrepup)</sub>
